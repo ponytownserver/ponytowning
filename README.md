@@ -1,5 +1,8 @@
 Pony Town Skin Trading!
 How to participate?
-- Join the Server , of course.
-- Send a picture of some of your skins and a character or oc you'd like someone to make for you!
-- Wait for someone to respond to your message and then trade skins with them by making them the character or oc they'd like!
+
+( 1 ) Send a picture or pictures of your ponies, and name a character you'd like in return.
+
+( 2 ) Wait for someone who would like a pony in your style to respond and make a character they'd like in return.
+
+( 3 ) Progress Pictures must be sent as proof you're not lying to the person, you will be banned if you do not complete your end of the deal.

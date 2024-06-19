@@ -1,1 +1,1 @@
-Read the Rentry for more information.
+read the Rentry for more information.

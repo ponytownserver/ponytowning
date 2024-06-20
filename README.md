@@ -1,10 +1,7 @@
-Information.
+**Information**
 
-1 . ) Send a picture of your ponies as a idea of what the person may receive in return, and list a character or a few characters for the person to pick from, that'd you'd like them to make for you.
-​
+1 . ) Send a picture of your ponies as a general idea of what the person is expecting to receive, and list a character or one of your characters that you'd like the person to make. ( If you don't want to seek out anyone you can just send your pony and wait for a reply. )
 
-2 . ) Wait for someone to respond, with the same thing (a picture of their ponies and a list of characters to go through) and move to on-going trade to discuss it.
-​
+2 . ) Wait for someone to respond with the same, and move to 'on-going-trade' to talk everything over or move to direct messages.
 
-3 . ) Progress pictures MUST be sent as proof you're actually doing your part of the deal, at the end simply send the person the colors or the pony and then the trade is done.
-​
+3 . ) Progress pictures must be sent with the person you're making it for @'d, and the person must reply with a progress picture in the next 24-48 hours.

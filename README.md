@@ -1,5 +1,4 @@
-ponytown discord server except it's for everyone and not just limited to supporters
+***PONYTOWN DISCORD SERVER***
 
-this is the vibe i bring to the function btw
-
-![chrome_BVxdqczn9H](https://github.com/ponytowning/ponytowning/assets/134979330/65d266a2-7a2f-4aca-886c-c74388c9020d)
+- do not join, if, you're a pro/comshipper or anyform & lolicon/shotacon or call yourself or others 'lolis/shotas'
+- and basically just the basic stuff, i'm sure you've all been in a server b4

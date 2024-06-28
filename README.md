@@ -6,6 +6,6 @@ ____________________________
 
 `Info about the creator, I dont wanna make a rentry.`
 
-. Jane or Jeffㅤᵕ̈♡︎ 
+. Jane or Jeffᵕ̈♡︎
 Transgirl + She/Her ᵔ 17 ++
 i really like jeff the killer and do get a bit possesive of this.. surry
